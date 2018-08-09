@@ -3,3 +3,7 @@ Chris Evans
 Chris Brown
 Chris Hemsworth
 Cris Pratt
+
+Pac Man
+Tetris
+LOL
