@@ -6,3 +6,7 @@ Baby
 One time
 Love me
 Cris Pratt
+
+Pac Man
+Tetris
+LOL
