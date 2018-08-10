@@ -1,8 +1,8 @@
 # Aula2.1.1
 Chris Evans
-Chris Rocks
+Chris Brown
 Chris Hemsworth
-
 Baby
 One time
 Love me
+Cris Pratt
